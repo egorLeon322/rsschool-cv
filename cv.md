@@ -4,4 +4,4 @@
 #### self-taught html and css. was in Polish collage with a technical programming direction.
 ##### have no expirience.
 ###### California High School diploma; secondary school education; 1 year of study at a technical school for programmers.
-####### speak English fluently, have been living in the USA for 4 years
+###### speak English fluently, have been living in the USA for 4 years
